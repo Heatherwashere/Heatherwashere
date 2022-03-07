@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Heatherwashere
-- 👀 I’m interested in ethics of technology, leadership, creativity. 
+- 👀 I’m interested in leadership, creativity, and ethics of technology.
 - 🌱 I’m currently learning ethical hacking. 
 - 💞️ I’m looking to collaborate on classroom resources in cybersecurity. 
 - 📫 www.linkedin.com/in/heatheremerson1
